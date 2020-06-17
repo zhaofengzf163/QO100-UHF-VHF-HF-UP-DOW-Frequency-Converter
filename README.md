@@ -29,8 +29,3 @@
                             BG0AUB
                            20200617
 
-
-
-![avatar](/image/46dbm.jpg)
-待续。。。。。
-
